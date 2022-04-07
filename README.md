@@ -1,1 +1,1 @@
-# Illumino-Africa
+# Illumino
